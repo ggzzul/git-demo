@@ -11,16 +11,3 @@ My poems don’t mince their words
 Or bend
 Or make queer little observations”
 
-They asked me if I had a gay poem
-So I answered honestly
-That, no, I didn’t have any gay poetry
-And even if, unthinkably, I did
-What would it say about me?
-I mean, even presenting the question
-Puts me in a precarious position
-And how would I even begin to broach the subject
-With my own creation?
-
-### IPSILUM
-
-This the third time I modified this text
